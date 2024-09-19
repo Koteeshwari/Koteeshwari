@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Koteeshwari
 - 👀 I’m interested in Automotive software
 - 🌱 I’m currently pursuing my MS in information studies
-- 💞️ I’m looking to collaborate on automotive
+- 💞️ I’m looking to collaborate...
 - 📫 How to reach me -my email ID -koteshwarinag1621@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
