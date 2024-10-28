@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Koteeshwari
-- 👀 I’m interested in Automotive software
+- 👀 I’m interested in Embedded software engineer
 - 🌱 I’m currently pursuing my MS in information studies
 - 💞️ I’m looking to collaborate...
 - 📫 How to reach me -my email ID -koteshwarinag1621@gmail.com
